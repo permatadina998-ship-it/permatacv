@@ -1,0 +1,2 @@
+# permatacv
+TENTANGG LULUSAN TKJ
